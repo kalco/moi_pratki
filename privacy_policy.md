@@ -1,4 +1,4 @@
-## Moi Ratki: Privacy policy
+## Moi Pratki: Privacy policy
 
 Welcome to the Moi Pratki app for Android!
 
